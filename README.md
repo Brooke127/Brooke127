@@ -2,7 +2,7 @@
 - 👀 I’m interested in technical/practical stuff, music and arts/crafts
 - 🌱 I’m currently learning in Highschool and ig practical/technical stuff
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me 153522@csgaugustinus.nl 
+- 📫 How to reach me ....good question
 
 <!---
 Brooke127/Brooke127 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
